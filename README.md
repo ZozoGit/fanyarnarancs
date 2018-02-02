@@ -1,1 +1,2 @@
 # fanyarnarancs
+sajtos tangli
